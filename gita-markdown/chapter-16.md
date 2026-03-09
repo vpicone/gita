@@ -4,11 +4,6 @@
 
 *24 verses*
 
-## Summary
-
-The sixteenth chapter of the Bhagavad Gita is "Daivasura Sampad Vibhaga Yoga". In this chapter, Krishna describes explicitly the two kinds of natures among human beings - divine and demoniac. Those who possess demonaic qualities associate themselves with the modes of passion and ignorance do not follow the regulations of the scriptures and embrace materialistic views. These people attain lower births and further material bondage. But people who possess divine qualities, follow the instructions of the scriptures, associate themselves with the mode of goodness and purify the mind through spiritual practices. This leads to the enhancement of divine qualities and they eventually attain spiritual realization.
-
----
 
 ### Verse 16.1
 

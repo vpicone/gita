@@ -4,11 +4,6 @@
 
 *30 verses*
 
-## Summary
-
-The seventh chapter of the Bhagavad Gita is "Gyaan Vigyana Yoga ". In this chapter, Krishna reveals that he is the Supreme Truth, the principal cause and the sustaining force of everything. He reveals his illusionary energy in this material world called Maya, which is very difficult to overcome but those who surrender their minds unto Him attain Him easily. He also describes the four types of people who surrender to Him in devotion and the four kinds that don't. Krishna confirms that He is the Ultimate Reality and those who realize this Truth reach the pinnacle of spiritual realization and unite with the Lord.
-
----
 
 ### Verse 7.1
 

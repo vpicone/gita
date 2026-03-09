@@ -4,11 +4,6 @@
 
 *28 verses*
 
-## Summary
-
-The eighth chapter of the Bhagavad Gita is "Akshara Brahma Yoga". In this chapter, Krishna reveals the importance of the last thought before death. If we can remember Krishna at the time of death, we will certainly attain him. Thus, it is very important to be in constant awareness of the Lord at all times, thinking of Him and chanting His names at all times. By perfectly absorbing their mind in Him through constant devotion, one can go beyond this material existence to Lord's Supreme abode.
-
----
 
 ### Verse 8.1
 

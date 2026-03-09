@@ -4,11 +4,6 @@
 
 *42 verses*
 
-## Summary
-
-The fourth chapter of the Bhagavad Gita is "Jnana Karma Sanyasa Yoga". In this chapter, Krishna glorifies the Karma Yoga and imparts the Transcendental Knowledge (the knowledge of the soul and the Ultimate Truth) to Arjuna. He reveals the reason behind his appearance in this material world. He reveals that even though he is eternal, he reincarnates time after time to re-establish dharma and peace on this Earth. His births and activities are eternal and are never contaminated by material flaws. Those persons who know and understand this Truth engage in his devotion with full faith and eventually attain Him. They do not have to take birth in this world again.
-
----
 
 ### Verse 4.1
 

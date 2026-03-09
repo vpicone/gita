@@ -4,11 +4,6 @@
 
 *29 verses*
 
-## Summary
-
-The fifth chapter of the Bhagavad Gita is "Karma Sanyasa Yoga". In this chapter, Krishna compares the paths of renunciation in actions (Karma Sanyas) and actions with detachment (Karma Yoga) and explains that both are means to reach the same goal and we can choose either. A wise person should perform his/her worldly duties without attachment to the fruits of his/her actions and dedicate them to God. This way they remain unaffected by sin and eventually attain liberation.
-
----
 
 ### Verse 5.1
 

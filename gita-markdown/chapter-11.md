@@ -4,11 +4,6 @@
 
 *55 verses*
 
-## Summary
-
-The eleventh chapter of the Bhagavad Gita is "Vishwaroopa Darshana Yoga". In this chapter, Arjuna requests Krishna to reveal His Universal Cosmic Form that encompasses all the universes, the entire existence. Arjuna is granted divine vision to be able to see the entirety of creation in the body of the Supreme Lord Krishna.
-
----
 
 ### Verse 11.1
 

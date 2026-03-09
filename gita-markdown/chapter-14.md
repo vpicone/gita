@@ -4,11 +4,6 @@
 
 *27 verses*
 
-## Summary
-
-The fourteenth chapter of the Bhagavad Gita is "Gunatraya Vibhaga Yoga". In this chapter, Krishna reveals the three gunas (modes) of the material nature - goodness, passion and ignorance which everything in the material existence is influenced by. He further explains the essential characteristics of each of these modes, their cause and how they influence a living entity affected by them. He then reveals the various characteristics of the persons who have gone beyond these gunas. The chapter ends with Krishna reminding us of the power of pure devotion to God and how attachment to God can help us transcend these gunas.
-
----
 
 ### Verse 14.1
 

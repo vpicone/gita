@@ -4,11 +4,6 @@
 
 *20 verses*
 
-## Summary
-
-The twelfth chapter of the Bhagavad Gita is "Bhakti Yoga". In this chapter, Krishna emphasizes the superiority of Bhakti Yoga (the path of devotion) over all other types of spiritual disciplines and reveals various aspects of devotion. He further explains that the devotees who perform pure devotional service to Him, with their consciousness, merged in Him and all their actions dedicated to Him, are quickly liberated from the cycle of life and death. He also describes the various qualities of the devotees who are very dear to Him.
-
----
 
 ### Verse 12.1
 

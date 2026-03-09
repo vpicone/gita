@@ -4,11 +4,6 @@
 
 *20 verses*
 
-## Summary
-
-The fifteenth chapter of the Bhagavad Gita is "Purushottama Yoga". In Sanskrit, Purusha means the "All-pervading God", and Purushottam means the timeless & transcendental aspect of God.        Krishna reveals that the purpose of this Transcendental knowledge of the God is to detach ourselves from the bondage of the material world and to understand Krishna as the Supreme Divine Personality, who is the eternal controller and sustainer of the world. One who understands this Ultimate Truth surrenders to Him and engages in His devotional service.
-
----
 
 ### Verse 15.1
 

@@ -4,11 +4,6 @@
 
 *28 verses*
 
-## Summary
-
-The seventeenth chapter of the Bhagavad Gita is "Sraddhatraya Vibhaga Yoga". In this chapter, Krishna describes the three types of faith corresponding to the three modes of the material nature. Lord Krishna further reveals that it is the nature of faith that determines the quality of life and the character of living entities. Those who have faith in passion and ignorance perform actions that yield temporary, material results while those who have faith in goodness perform actions in accordance with scriptural instructions and hence their hearts get further purified.
-
----
 
 ### Verse 17.1
 

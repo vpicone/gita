@@ -4,11 +4,6 @@
 
 *42 verses*
 
-## Summary
-
-The tenth chapter of the Bhagavad Gita is "Vibhooti Yoga". In this chapter, Krishna reveals Himself as the cause of all causes. He describes His various manifestations and opulences in order to increase Arjuna's Bhakti. Arjuna is fully convinced of Lord's paramount position and proclaims him to be the Supreme Personality. He prays to Krishna to describe more of His divine glories which are like nectar to hear.
-
----
 
 ### Verse 10.1
 

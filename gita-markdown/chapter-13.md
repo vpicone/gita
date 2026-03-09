@@ -4,11 +4,6 @@
 
 *35 verses*
 
-## Summary
-
-The thirteenth chapter of the Bhagavad Gita is "Ksetra Ksetrajna Vibhaaga Yoga". The word "kshetra" means "the field", and the "kshetrajna" means "the knower of the field". We can think of our material body as the field and our immortal soul as the knower of the field. In this chapter, Krishna discriminates between the physical body and the immortal soul. He explains that the physical body is temporary and perishable whereas the soul is permanent and eternal. The physical body can be destroyed but the soul can never be destroyed. The chapter then describes God, who is the Supreme Soul. All the individual souls have originated from the Supreme Soul. One who clearly understands the difference between the body, the Soul and the Supreme Soul attains the realization of Brahman.
-
----
 
 ### Verse 13.1
 

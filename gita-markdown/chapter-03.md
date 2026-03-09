@@ -4,11 +4,6 @@
 
 *43 verses*
 
-## Summary
-
-The third chapter of the Bhagavad Gita is "Karma Yoga" or the "Path of Selfless Service". Here Lord Krishna emphasizes the importance of karma in life. He reveals that it is important for every human being to engage in some sort of activity in this material world. Further, he describes the kinds of actions that lead to bondage and the kinds that lead to liberation. Those persons who continue to perform their respective duties externally for the pleasure of the Supreme, without attachment to its rewards get liberation at the end.
-
----
 
 ### Verse 3.1
 

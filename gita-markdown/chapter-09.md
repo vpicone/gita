@@ -4,11 +4,6 @@
 
 *34 verses*
 
-## Summary
-
-The ninth chapter of the Bhagavad Gita is "Raja Vidya Yoga". In this chapter, Krishna explains that He is Supreme and how this material existence is created, maintained and destroyed by His Yogmaya and all beings come and go under his supervision. He reveals the Role and the Importance of Bhakti (transcendental devotional service) towards our Spiritual Awakening. In such devotion, one must live for the God, offer everything that he possesses to Him and do everything for Him only. One who follows such devotion becomes free from the bonds of this material world and unites with the Lord.
-
----
 
 ### Verse 9.1
 
